@@ -1,2 +1,2 @@
-creditxinagasiaOKhttps://api.bahacredit.cyou.ccviodinfo
+creditxinagasiaOKhttps://api.bahacredit.cyouviodinfo
 
